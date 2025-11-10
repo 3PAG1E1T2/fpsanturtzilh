@@ -1,2 +1,0 @@
-# fpsanturtzilh
-1. ERRONKA - FP SANTURTZI LH (3PAG1 25/26)
